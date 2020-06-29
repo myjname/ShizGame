@@ -1,2 +1,2 @@
 # ShizGame
-https://vk.com/shizagame
+https://vk.com/shizgame
